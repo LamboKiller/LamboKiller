@@ -1,4 +1,4 @@
-# Yussef Hallak
+# Yussef Omar Hallak
 
 **Mechatronics Engineering Student | Control & Automation | Embedded Systems | Robotics**
 
